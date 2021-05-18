@@ -1,2 +1,2 @@
-<h1>A Brave new frontier in our Rp's Filled with Demons & Mortals.</h1>
+<h2>A Brave new frontier in our Rp's Filled with Demons & Mortals.</h2>
 Long ago Demons & Mortals used to live in harmoney. The world of Habena was once peaceful for hundread of years filled with demons & humans. But after the castrophie of Half Human Demon hybrid attacking Innocent people. A handful of humans have decided to form a coalition to kill every single demon in retribution. This has thrown the world into chaos and disarray & war.
