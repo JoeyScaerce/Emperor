@@ -18,3 +18,10 @@ Long ago Demons & Mortals used to live in harmony. The world of Habena was once 
 <p align="center"> 
 <img src="https://i.ibb.co/F0nC5Sr/2021-05-19-14-19-59.png" alt="2021-05-19-14-16-30" border="0">
 </p>
+
+<hr>
+
+<h3>Current update</h3>
+<ul>
+  <li><strong>v1 Unrest</strong></li>  
+</ul>
