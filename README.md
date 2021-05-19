@@ -16,5 +16,5 @@ Long ago Demons & Mortals used to live in harmony. The world of Habena was once 
 <p align="center"> 
   This pack was made to be the succesor of Rp2 one of the greatest rp currently with a fun & amazing story. Having over +100 mods this pack is meant for just good old fun.
 <p align="center"> 
-<img src="https://i.ibb.co/b5CXLz0/2021-05-19-14-16-30.png" alt="2021-05-19-14-16-30" border="0">
+<img src="https://i.ibb.co/F0nC5Sr/2021-05-19-14-19-59.png" alt="2021-05-19-14-16-30" border="0">
 </p>
